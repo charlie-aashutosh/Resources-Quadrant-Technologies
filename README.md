@@ -1,0 +1,1 @@
+# Resources-Quadrant-Technologies
